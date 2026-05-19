@@ -1,4 +1,4 @@
-ש# Hostinger VPS Coupon Code 2026 – KVM Discount for Developers & AI Agents (Updated May 2026)
+# Hostinger VPS Coupon Code 2026 – KVM Discount for Developers & AI Agents (Updated May 2026)
 
 > ✅ Verified May 2026 | Exclusive to the [r/VibeCodersNest](https://www.reddit.com/r/VibeCodersNest/) community
 
